@@ -1,1 +1,1 @@
-
+EcoBloom Kit is the complete gardening solution that includes biodegradable seed pods, smart sensors, nutrient solutions, and educational materials.The project primarily focuses on the use of various elements of marketing mix for the formulation of one-year marketing plan for the kit.
